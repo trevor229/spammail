@@ -1,0 +1,37 @@
+from:	*DAVID CAMERON <"www."@coral.ocn.ne.jp>*
+
+reply-to:	*DAVID CAMERON <wuntransfer@yahoo.com>*
+
+to:	*[REDACTED]*
+
+date:	*Mon, Jul 3, 2017 at 8:00 AM*
+
+subject: *Attention: Email ID Owner*
+
+mailed-by: *coral.ocn.ne.jp*
+
+***Attention: Email ID Owner***
+
+RE: 2000 - 2017 COMPENSATION FUND FROM THE MINISTRY OF FINANCE AND THE INTERNATIONAL MONETARY FUND:IMF: BENIN.
+
+We have concluded to affect your own payment through Western Union® Money Transfer, $5,000 daily until the total sum of $2,500,000 Million is completely transferred to you. We can not be able to send the payment with your email address alone therefore we need your information as to where we will be sending the funds.Your first Payment has already been sent. This payment was directed to be made available in your full information immediately you reconfirmed your full information as the following below
+
+- Your Full Name:……
+- Your Country/ City:……
+- Your Age:………
+- Your Sex:……
+- Your Direct Phone Number:……
+- Your ID copy:……
+
+
+Contact us through our head office email bellow
+
+- Email: wuntransfer@yahoo.com
+- Phone number: +229 68857159
+- Director: Mr Samson Dan
+
+Reply back with your full information. Note that your payment files will be returned to the IMF within 72 hours if we did not hear from you, this was the instruction given to us by the IMF. We will start the transfer as soon as we received your information.
+
+Treat With Urgency +229 68857159
+
+Mr David Cameron

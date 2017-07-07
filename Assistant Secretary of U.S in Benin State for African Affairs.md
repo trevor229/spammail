@@ -1,0 +1,82 @@
+from:	*MS. JENET DIBOR <"www."@road.ocn.ne.jp>*
+
+reply-to:	*"MS. JENET DIBOR" <ms_jenet.dibor67@hotmail.com>*
+
+to: *[REDACTED]*
+
+date:	*Mon, Jul 3, 2017 at 7:31 PM*
+
+subject:	*Assistant Secretary of U.S in Benin State for African Affairs.*
+
+mailed-by:	*road.ocn.ne.jp*
+
+***Attention: Beneficiary,***
+
+This is to bring to your notice that because of the impossibility of your fund
+transfer through the western union, I am doing all I can to ensure you receive
+your funds and I protected your funds for almost six Months now but I assure
+you that you still have every opportunity to claim your entire funds from the
+United State Embassy Office Benin Republic (U.S.E.B.R).
+
+I am only trying to help you because of the way the payment was handled in the
+past. Secondly, I can't seat and watch you lose your funds after confiding in
+me. As matter of fact, there are still decent and God fearing people here in
+the United State Embassy Office Benin Republic which I am a good example.
+
+Since I resume this office in the year 2014, I have helped so many foreign
+Contractors/Beneficiaries worldwide in claiming their long overdue funds from
+the Benin Government.
+
+If you don't want to conclude these matter before 30th, June just inform me
+today so that I can know what next to do because I did all I could for my
+government to protect your fund and your personality, and I can help you if you
+help yourself.
+
+If you can be able to come up with $65.00 for the Clearance Paper today, I will
+make sure you get your fund soon as possible, your fund is ready to transfer to
+you as I write to you now due to my effort and I don't know why you should be
+dealing with people outside my office, just do your best and these transfer
+will be conducted finally. Because  if the transfer is terminated there is no
+way on earth you can get this fund due to the IMF will just have to cancel your
+name from the payment file, its better you conclude these matter within the
+given date.
+
+Once you send the clearance fee, I assure you that you are going to confirm
+your funds in your Country WITHIN 10HRS  through our choosing Diplomatic Agent.
+
+I shall try my possible best to make sure I conclude the due legal process and
+will like you to Take my word because I am strongly behind you and my effort to
+this does not end until you confirm the availability of your fund in your
+hands.
+
+Please do not allow any body to deceive you, and I don't want you to be tired
+of these, just take life easy and see what the result will be, I insure you
+that your funds will be release to you, it's not easy and I believe you have
+tried as well, so make sure you conclude these by paying clearance fee or your
+payment will be terminated by the High Authority and that is all I can say for
+now.
+
+Note: that your consignment box has been arrived in US embassy andwaiting to
+receive clearance papers before the gate pass is given. Meanwhile, you are
+advise to reconfirm the below information upon contacting me to avoid delivery
+to the wrong person.
+
+1. Your full name:
+2. Your home address:
+3. Your occupation:
+4. Direct Telephone Number:
+
+Waiting to hear from you to enable me give you name to send the clearance fee
+through Money Gram, for immediate action on the
+release of your consignment.
+
+Note: that you are expected to pay only $65.00 for clearance papers and you are
+to pay it to Benin Republic as the origination of the consignment box.
+
+Please treat this as matter of urgency. Note that any unclaimed consignment
+will be return to the Courier Company after 3 days for final diversion. So you
+are advise to comply very urgent so that your consignment will be among those
+that will be deliver soon as possible.
+
+Yours In Service,
+MS. JENET DIBOR
