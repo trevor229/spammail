@@ -1,0 +1,29 @@
+from:	Ben Hamilton <benjamin@statusrsk.net>
+to:	
+date:	Thu, Jul 13, 2017 at 7:41 PM
+subject:	Invitation #3529
+mailed-by:	statusrsk.net
+signed-by:	statusrsk.net
+security:	 Standard encryption (TLS) Learn more
+
+In full transparency this is not spam, it's a real email from a real person. The reason you are receiving this email is because we created an algorithm called Multivac which monitors the noise from crypto currency chat rooms, github, and forums to determine candidates who are involved in the network. While we cannot reveal other user ranks for privacy, we can say that you are in the top 49% of the Litecoin community. This means that of the 3 million people that visit the top crypto exchanges every day, you are 1 in a group of 63,610 users who genuinely participate beyond the trade in financial cryptography. 
+
+We did this for two reasons: 
+First, what if the most active and engaged members of the community quietly came together sheltered from hype and unproductive "troll" talk. This community could be focused and free to work in peace on the new technology at a density that could only be rivaled by bitcointalk.org in the early days--only several orders of magnitude bigger. If we don't engage this community, this opportunity and other collaborations wont happen.
+
+Second, if the first assumption is correct, the community and ecosystem will only grow stronger if it can freely work on any blockchain with any feature. We felt Status.im perfectly captured this philosophy until this past January they decided to pivot from their original mission--a multi-blockchain smart contract platform--to an Ethereum-only consumer chat app. We believe Ethereum won't be the only smart contract chain and that the community can innovate faster is smart contracts and D-apps can be used on all chains.
+
+For these reasons we built a fork of Status.im called Status RSK which has ultimately lead to the email you (and 60,000 others) are reading right now. Status RSK is built on Bitcoin, works with all the major smart contract chains, and creates encrypted integrations with Telegram Chat, WeChat, and Slack. 
+
+The Invitation. 
+
+The invitation is a truly rare code generated only once and assigned to only one individual. It represents our philosophy for the value of the community we are trying to build, a true anti-hype community for without the code you see below the general user cannot participate in the ICO. We hope you don't view this negatively but simply as another experiment: anyone who has a code like this one actually built crypto or they truly studied it. 
+58f4-b8b4-577a-a4a7-8992-996b-cefb-e876-1c3f-c5ee
+
+
+Continue on to the Status RSK website. Otherwise, you will never hear from us again. 
+
+
+Multivac #7 @ Status RSK 
+
+PS: Keep in mind we do have fascinating opportunity here, 63,610 people involved in the space is something important we can and should protect from the hype machine. For this reason Please keep this email to yourself
