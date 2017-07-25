@@ -1,0 +1,19 @@
+from:	Loan Service Provider <info@applehill.com>
+reply-to:	primeln.inc@gmail.com
+to:	
+date:	Mon, Jul 24, 2017 at 4:35 AM
+subject:	2% Loan Offer
+security:	 Standard encryption (TLS) Learn more
+
+
+
+-- 
+We are offering out loan at a very cheap rate of 2%, please get back to us if you are interested.
+
+NAME:
+PHONE:
+DURATION:
+ADDRESS:
+AMOUNT:
+
+Prime Loan Inc.
