@@ -1,0 +1,16 @@
+from:	boa@non-reply.com
+to:	
+date:	Sat, Aug 12, 2017 at 8:50 PM
+subject:	Bank of America
+security:	 polymatheia.it did not encrypt this message Learn more
+
+Dear Customer,
+
+This is an Alert to help you manage your Bank of America Transaction Request
+
+Here is your account transaction request summary for 08/12/2017. 
+Click here
+
+Your security our priority.
+
+Customer Service Department
