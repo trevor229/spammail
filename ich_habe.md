@@ -21,10 +21,10 @@
 Hallo, ich habe eine Spende in Höhe von 4.800.000,00 EUR für Sie, 
 ich habe die Amerikalotterie im Wert von 40 Mio. USD gewonnen und einen Teil davon für wohltätige Zwecke gespendet, 
 zum Gedenken an meine verstorbene Frau, die an Krebs gestorben ist. 
-Sie können so schnell wie möglich Kontakt mit (tomcristdonor58@gmail.com) aufnehmen, um weitere Informationen zu erhalten.
+Sie können so schnell wie möglich Kontakt mit `(tomcristdonor58@gmail.com)` aufnehmen, um weitere Informationen zu erhalten.
 
 # Translated:
 Hello, I have a donation of 4,800,000.00 EUR for you, 
 I won the American Lottery worth USD 40 million and donated part of it to charity to commemorate my late wife who died of cancer is. 
-You can contact (tomcristdonor58@gmail.com) as soon as possible for more information.
+You can contact `(tomcristdonor58@gmail.com)` as soon as possible for more information.
 © 2020 GitHub, Inc.
